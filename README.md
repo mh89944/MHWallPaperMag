@@ -1,0 +1,2 @@
+# MHWallPaperMag
+Wallpaper
